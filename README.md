@@ -1,2 +1,0 @@
-# sa-merda
-pqp ein
